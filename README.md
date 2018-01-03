@@ -1,0 +1,2 @@
+# Safelink
+Untuk safelink adsense
